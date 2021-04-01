@@ -1,1 +1,1 @@
-# S-t-Takip-Program-
+# Sut-Takip-Programı-
